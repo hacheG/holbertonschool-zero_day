@@ -1,1 +1,1 @@
-# holbertonschool-zero_day
+i hope to have lucky
